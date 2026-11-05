@@ -219,4 +219,4 @@ Total War Saga: Thrones of Britannia is available as a **full free version** wit
 Now is the perfect time to download **Total War Saga: Thrones of Britannia** and embark on your epic journey! Don't miss out on this exciting historical strategy game — click the download button above!
 
 ---
-**Last updated:** 2026-11-05 03:01:53 UTC
+**Last updated:** 2026-11-05 11:46:28 UTC
